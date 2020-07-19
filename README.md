@@ -1,0 +1,2 @@
+# instatakip
+Kazandiran
